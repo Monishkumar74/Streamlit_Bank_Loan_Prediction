@@ -35,5 +35,5 @@
 
 # [Buy me a Coffee☕](https://www.buymeacoffee.com/monishkumal)
 ## [Follow us on Instagram for Machine Learning Guidelines & Path](https://www.instagram.com/monishkumar7_/)
-# [G PAY upi id](monishkumar0420@okaxis) 
+# G PAY upi id: monishkumar0420@okaxis
 ## [Buy Python & ML projects for students at lower rate](https://www.instamojo.com/kushalbhavsar1820)
